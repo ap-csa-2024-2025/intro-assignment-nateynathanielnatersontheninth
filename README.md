@@ -13,6 +13,9 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
-* Ask Mr. Vu anything:
+* Something interesting about me is I'm a noodle man.
+* Ask Mr. Vu anything: Do you use shampoo Mr. Vu?
 * List your sports and extracurriculars you participate in
+Track, OCSEF
+
+Classwork
